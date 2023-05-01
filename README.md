@@ -39,5 +39,3 @@ shining brightly girls called my attention several times to beauty of the light 
 .ve-graphic [https://www.flickr.com/photos/mastatelibrary/9458639237/in/album-72157634970087059/](https://drive.google.com/drive/my-drive) 
 
 Woodside Villa Boston Harbor 
-
-> come back to graphic 
